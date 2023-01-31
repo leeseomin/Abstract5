@@ -9,7 +9,7 @@
  
 
 
- ### Untitled 202
+ ### Untitled 202 (Have you ever seen Thing-in-itself?)
  <img src="https://github.com/leeseomin/Abstract5/blob/main/art/202.png" width="50%">    
  
  <br/><br/> 
