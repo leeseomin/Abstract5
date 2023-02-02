@@ -23,7 +23,7 @@
  <br/><br/> 
  
  
- ### Untitled 205
+ ### Untitled 205 (BRUTALITY OF LIFE)
  <img src="https://github.com/leeseomin/Abstract5/blob/main/art/205.PNG" width="50%">    
  
  <br/><br/> 
