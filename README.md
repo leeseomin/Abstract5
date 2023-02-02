@@ -23,7 +23,7 @@
  <br/><br/> 
  
  
- ### Untitled 205 (BRUTALITY OF LIFE)
+ ### Untitled 205 (Brutality of Life or Straw Dogs)
  <img src="https://github.com/leeseomin/Abstract5/blob/main/art/205.PNG" width="50%">    
  
  <br/><br/> 
