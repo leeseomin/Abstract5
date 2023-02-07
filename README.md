@@ -55,6 +55,12 @@
  <img src="https://github.com/leeseomin/Abstract5/blob/main/art/216.png" width="50%">    
  
  <br/><br/> 
+ 
+### Untitled 217
+ <img src="https://github.com/leeseomin/Abstract5/blob/main/art/217.png" width="50%">    
+ 
+ <br/><br/> 
+ 
 
 
 ### Untitled 218
