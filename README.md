@@ -134,7 +134,7 @@
  <br/><br/> 
  
  ### Untitled 232 : What if my humble impulse is to leave a beautiful mark on a vanishing world? 
- <img src="https://github.com/leeseomin/Abstract5/blob/main/art/230.png" width="50%">    
+ <img src="https://github.com/leeseomin/Abstract5/blob/main/art/232.png" width="50%">    
  
  <br/><br/> 
  
