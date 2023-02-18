@@ -138,7 +138,7 @@
  
  <br/><br/> 
  
- ### Untitled 234 : 
+ ### Untitled 234 : what is Contemporary art?
  <img src="https://github.com/leeseomin/Abstract5/blob/main/art/234.png" width="50%">    
  
  <br/><br/> 
