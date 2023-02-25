@@ -173,6 +173,12 @@ https://medium.com/@leeseomin/untitled-239-waiting-for-codot-7bb9227cc5b5
  <br/><br/> 
  
  
+ ### Untitled 240 : Language, my tool and my cage
+
+
+ <img src="https://github.com/leeseomin/Abstract5/blob/main/art/241.png" width="50%">    
+ 
+ <br/><br/> 
  
  
  ### Author and Creator
