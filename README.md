@@ -2,6 +2,16 @@
 
 
 
+
+
+ <img src="https://github.com/leeseomin/Abstract5/blob/main/art/243.png" width="70%">    
+ 
+ <br/><br/> 
+ ### Untitled 243 : Midst fading ruins
+
+ 
+ 
+
  ### Untitled 200
  <img src="https://github.com/leeseomin/Abstract5/blob/main/art/200.png" width="50%">    
  
