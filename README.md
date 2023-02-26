@@ -4,9 +4,8 @@
 
 
 
- <img src="https://github.com/leeseomin/Abstract5/blob/main/art/243.png" width="70%">    
- 
- <br/><br/> 
+ <img src="https://github.com/leeseomin/Abstract5/blob/main/art/243.png" width="60%">    
+
  ### Untitled 243 : Midst fading ruins
 
  
