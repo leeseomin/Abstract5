@@ -198,6 +198,31 @@ https://medium.com/@leeseomin/untitled-239-waiting-for-codot-7bb9227cc5b5
  <br/><br/> 
  
  
+ ### Untitled 245 : Impulse to Eternity 
+
+Consider the spectacle of human beings,
+Eyes fixed on screens of digital gleams.
+Their limbs still, their breaths slow,
+Transfixed by the images that flow.
+
+If we but record this captivating scene,
+It will once again be a digital dream.
+
+
+As humans pass, their legacy remains,
+Inherited traits, a genetic chains.
+
+Do these two forces share a common bond,
+A continuity of life, Impulse to Eternity 
+
+
+
+
+ <img src="https://github.com/leeseomin/Abstract5/blob/main/art/243.png" width="50%">    
+ 
+ <br/><br/> 
+ 
+ 
  
  ### Author and Creator
  
