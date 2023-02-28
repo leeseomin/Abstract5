@@ -213,7 +213,7 @@ As humans pass, their legacy remains,
 Inherited traits, a genetic chains.
 
 Do these two forces share a common bond,
-A continuity of life, Impulse to Eternity 
+A continuity of life, Impulse to Eternity?
 
 
 
