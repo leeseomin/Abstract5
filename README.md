@@ -238,6 +238,14 @@ https://medium.com/@leeseomin/untitled-239-waiting-for-codot-7bb9227cc5b5
  
  <br/><br/>  
  
+
+### Untitled 253 : Others are planets at the far end of the universe
+
+
+ <img src="https://github.com/leeseomin/Abstract5/blob/main/art/253.png" width="50%">    
+ 
+ <br/><br/>  
+ 
  
  
  ### Author and Creator
