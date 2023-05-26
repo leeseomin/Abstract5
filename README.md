@@ -247,7 +247,7 @@ https://medium.com/@leeseomin/untitled-239-waiting-for-codot-7bb9227cc5b5
  <br/><br/>  
  
 
-### Untitled 255
+### Untitled 255 : Wandering of the Soul  영혼의 방황 
 
 
  <img src="https://github.com/leeseomin/Abstract5/blob/main/art/255_4k.png" width="50%">    
