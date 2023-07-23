@@ -256,10 +256,11 @@ https://medium.com/@leeseomin/untitled-239-waiting-for-codot-7bb9227cc5b5
 
 
 
-### Untitled 260
+### Untitled 260 : Diachronic Ghost , 통시적 유령 
 
 
- <img src="https://github.com/leeseomin/Abstract5/blob/main/art/260.png" width="50%">    
+
+ <img src="https://github.com/leeseomin/Abstract5/blob/main/art/260.png" width="80%">    
  
  <br/><br/>  
 
