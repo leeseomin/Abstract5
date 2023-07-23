@@ -264,7 +264,9 @@ https://medium.com/@leeseomin/untitled-239-waiting-for-codot-7bb9227cc5b5
  
  <br/><br/>  
 
+ <img src="https://github.com/leeseomin/Abstract5/blob/main/art/260_kr.png" width="70%">    
  
+ <br/><br/>  
  
  ### Author and Creator
  
