@@ -276,7 +276,7 @@ https://medium.com/@leeseomin/untitled-239-waiting-for-codot-7bb9227cc5b5
  
  <br/><br/>  
 
- <img src="https://github.com/leeseomin/Abstract5/blob/main/art/262_en.png" width="70%">    
+ <img src="https://github.com/leeseomin/Abstract5/blob/main/art/262_en.png" width="80%">    
  
  <br/><br/> 
 
