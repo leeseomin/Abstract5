@@ -256,7 +256,7 @@ https://medium.com/@leeseomin/untitled-239-waiting-for-codot-7bb9227cc5b5
 
 
 
-### Untitled 260 : Diachronic Ghost , 통시적 유령 
+### Untitled 260 : Diachronic Ghost  통시적 유령 
 
 
 
@@ -267,6 +267,20 @@ https://medium.com/@leeseomin/untitled-239-waiting-for-codot-7bb9227cc5b5
  <img src="https://github.com/leeseomin/Abstract5/blob/main/art/260_kr.png" width="70%">    
  
  <br/><br/>  
+
+
+
+ ### Untitled 262 : 나의 30대는    My thirties
+
+ <img src="https://github.com/leeseomin/Abstract5/blob/main/art/262_kr.png" width="80%">    
+ 
+ <br/><br/>  
+
+ <img src="https://github.com/leeseomin/Abstract5/blob/main/art/262_en.png" width="70%">    
+ 
+ <br/><br/> 
+
+ 
  
  ### Author and Creator
  
