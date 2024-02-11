@@ -281,7 +281,7 @@ https://medium.com/@leeseomin/untitled-239-waiting-for-codot-7bb9227cc5b5
  <br/><br/> 
 
 
-### Untitled 265 : "Modern Life is a Sophisticated Prison"
+### Untitled 265 : "Yet, life itself is a vast and sophisticated prison"
 
  <br/><br/> 
  <br/><br/> 
