@@ -288,6 +288,18 @@ https://medium.com/@leeseomin/untitled-239-waiting-for-codot-7bb9227cc5b5
  
  <br/><br/> 
  <br/><br/> 
+
+
+
+### Untitled 270 : "There is no task that must absolutely be done"
+
+ <img src="https://github.com/leeseomin/Abstract5/blob/main/art/270_en.png" width="100%">    
+
+ 
+ <br/><br/> 
+ <br/><br/> 
+
+ 
  
  
  ### Author and Creator
