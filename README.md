@@ -324,7 +324,14 @@ https://medium.com/@leeseomin/untitled-239-waiting-for-codot-7bb9227cc5b5
 
  <img src="https://github.com/leeseomin/Abstract5/blob/main/art/281_kr.png" width="100%">    
 
+ <br/><br/> 
+ <br/><br/> 
+ 
 
+
+ ### Untitled 282
+
+ <img src="https://github.com/leeseomin/Abstract5/blob/main/art/282_kr.png" width="100%">   
 
  
  ### Author and Creator
